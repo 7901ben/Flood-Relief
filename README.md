@@ -13,7 +13,7 @@ About Us:
 ![WhatsApp Image 2022-01-18 at 4 07 46 PM (1)](https://user-images.githubusercontent.com/66934832/149921504-7cdb679e-9ef1-4fca-a87c-69c420c65e91.jpeg)
 
 
-Mape:
+Map:
 
 
 
